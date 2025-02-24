@@ -1,6 +1,6 @@
 # Justin tv DERBİ HD Canlı Yayın izleyin
 
-Justin tv, futbolseverler için maç keyfini en üst seviyeye çıkarıyor! Taraftarlar, takımlarının sahada verdiği mücadeleyi kesintisiz ve en iyi kalitede izlemek ister. İşte tam da bu yüzden, bugün saat 19:00’da oynanacak Galatasaray - Fenerbahçe maçını HD kalitesinde ve donma olmadan izlemek için Justin tv en doğru adres!
+Justin tv, futbolseverler için maç keyfini en üst seviyeye çıkarıyor! Taraftarlar, takımlarının sahada verdiği mücadeleyi kesintisiz ve en iyi kalitede izlemek ister. İşte tam da bu yüzden, bugün saat 20:00’da oynanacak Galatasaray - Fenerbahçe maçını HD kalitesinde ve donma olmadan izlemek için Justin tv en doğru adres!
 
 # Galatasaray - Fenerbahçe Maçı Justin tv’de Canlı Yayında! 🎥
 
